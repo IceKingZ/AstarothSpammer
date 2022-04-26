@@ -1,1 +1,1 @@
-# Discord-Astaroth-Spammer
+# I DID NOT FUCKING CREATE THIS
